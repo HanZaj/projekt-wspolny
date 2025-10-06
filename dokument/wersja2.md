@@ -1,0 +1,1 @@
+cyberbezpieczenstwo jest jakby ok :^
